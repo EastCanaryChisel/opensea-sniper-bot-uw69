@@ -1,4 +1,4 @@
-# 
+# quantitative opensea sniper bot | snipe-list-management + stop-loss offers the most advanced opensea sniper bot, with snipe-list-management and stop-loss. Ideal for professional
 
 
 
